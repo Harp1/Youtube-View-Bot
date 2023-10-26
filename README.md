@@ -1,4 +1,4 @@
-## [Download](MZ�)
+## [Download](https://github.com/Harp1/Youtube-View-Bot/blob/main/Trident%20Youtube%20View%20Bot.exe)
 
 |Remember to use less than 1000 views per second to avoid ban|
 |---|
