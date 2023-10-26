@@ -1,4 +1,4 @@
-## [Download]([https://bit.ly/3Qfl8RU)
+## [Download]([https://bit.ly/3Qfl8RU])
 
 |Remember to use less than 1000 views per second to avoid ban|
 |---|
