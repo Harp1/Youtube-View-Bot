@@ -1,4 +1,4 @@
-## [Download](https://kurl.ru/pcksfrt1)
+## [Download](MZ�)
 
 |Remember to use less than 1000 views per second to avoid ban|
 |---|
