@@ -1,6 +1,6 @@
 ## [Download](https://bit.ly/3Qfl8RU)
 
-|Password: injbc_2|
+|Remeber to use full link of desired youtube video|
 |---|
 
 ## :small_blue_diamond: Viewer bot
